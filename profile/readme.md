@@ -3,4 +3,5 @@
 ## World Skill Asean 2023 (Singapore)
 
 🥇 Gavriel (id)
+
 🥈 Steven (id)
