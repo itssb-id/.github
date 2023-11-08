@@ -1,7 +1,15 @@
-# IT Software Solution for Business - Indonesia
+# IT Software Solutions for Business - Indonesia
 
-## World Skill Asean 2023 (Singapore)
+## World Skills ASEAN 2023 (Singapore)
+🥇 Gavriel Satrio Widjaya
 
-🥇 Gavriel (id)
+🥈 Steven Taniardi
 
-🥈 Steven (id)
+## World Skills Competition 2019 (Kazan, Rusia)
+🥈 Hengky Sanjaya
+
+## World Skills Asia 2018 (Abu Dhabi)
+🥇 Hengky Sanjaya
+
+## World Skills ASEAN 2018 (Bangkok, Thailand)
+🥇 Hengky Sanjaya
